@@ -32,7 +32,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **yuvr4aj@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/search?q=20104032%20Yuvraj](https://drive.google.com/drive/search?q=20104032%20Yuvraj)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Uvpqws9kSAxR9BlpcmDqIw8XrOeE34Zo/view?usp=sharing](https://drive.google.com/file/d/1Uvpqws9kSAxR9BlpcmDqIw8XrOeE34Zo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
